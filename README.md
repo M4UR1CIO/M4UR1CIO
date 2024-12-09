@@ -18,8 +18,7 @@
 
 <br>
 
-[![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png)](https://www.linkedin.com/in/mauricio-palomino-ayala-16a24a274/)  
-[![Gmail](https://img.icons8.com/color/48/000000/gmail-new.png)](mailto:mauriciopalomino39@gmail.com) 
+[![@Linkedin](https://img.icons8.com/fluency/48/000000/linkedin.png)](https://www.linkedin.com/in/mauricio-palomino-ayala-16a24a274/)  
 
 <br>
 
